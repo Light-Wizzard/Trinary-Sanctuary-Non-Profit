@@ -9,5 +9,7 @@ The reason for Trinary Sanctuary is to form a new type of Government not based o
 The only way Trinary Sanctuary can pay down the loan, instead of paying it off, is because currently it is not possible to pay it off; because they are borrowing more than anyone could keep up with. The realistic goal is to pay down the interest payment so that we can start paying on the loan itself, and not just the interest payments; something the United States has never done. There is no other way to pay off the debt unless everything is free. The purpose of Trinary Sanctuary is to enlist people what will take an Oath to Trinary Sanctuary, to work for free, live free, and stay free; so it has no debt.
 
 Trinary Sanctuary will provide the Governments with excess power, food, water, and manufactured products; that the Military will sell to pay down the National Debt.
+
 Trinary Sanctuary does not allow Laws because all Laws allow Treason. Therefore, you cannot trust any Laws, nor the People making them, and Enforcing them. 
+
 The Military will have to take full control of this project, this document is a reference to get the project started.
